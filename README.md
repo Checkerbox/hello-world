@@ -4,7 +4,7 @@ Thanks for reading my hello.
 Here are 4 things you might want to know about me:
 
 1. I'm a happily married father of a toddler. We live in Benicia, CA. 
-2. I was last engaged in high tech programming and project management in the late 1990s. 
+2. I was last engaged in high tech programming and project management in the early 2000s. 
 3. I'm a very good baker. I make sourdough bread for my family from sprouted organic whole wheat. For a while I pursued this professionally. 
 4. I'm immensely proud of the fact that I self-installed a grid-tied battery backed-up rooftop solar system on my house. 
 
